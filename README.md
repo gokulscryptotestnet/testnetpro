@@ -4,3 +4,5 @@ lests goo
 okey
 hy im here to follow my dreams 
 DONE
+im consistent
+im doing my best
