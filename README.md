@@ -6,3 +6,4 @@ hy im here to follow my dreams
 DONE
 im consistent
 im doing my best
+im doing good what i do
